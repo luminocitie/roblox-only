@@ -2,7 +2,7 @@
 
 hi! if you clicked on my bio ty!
 
-*heads up, im 15, if you are an adult and that makes you uncomfortable, feel free to unadd me*
+*heads up, im 15, if you are an adult and that makes you uncomfortable, feel free to unadd me, this also means i can only chat in the 13-15 range.*
 
 since roblox keeps tagging me, ive added this IF you want to interact with me on other social sites
 
